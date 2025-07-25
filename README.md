@@ -1,0 +1,1 @@
+# Cursor-Student-Enable-for-Sheerid
